@@ -1,2 +1,4 @@
-- Hi guys, I'm K3PK1K, and yes, I know it's quite a strange username, but it is what it is.
-- I like programing in Python and HTML/CSS.
+- QUE PASA NENG.
+- ME GUSTA PROGRAMAR EN PYTHON Y EN HTML/CSS, Y LAS ALBONDIGAS DE MI ABUELA.
+- SI QUIERES CURRAR EN ALGO MANDA DM O LO QUE SEA QUE SE HACE AQUÍ.
+- UN FUERTE ABRAZO NENG.
