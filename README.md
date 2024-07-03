@@ -1,0 +1,2 @@
+- Hi guys, I'm K3PK1K, and yes, I know it's quite a strange username, but it is what it is.
+- I like programing in Python and HTML/CSS.
